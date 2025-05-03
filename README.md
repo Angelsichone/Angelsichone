@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the css and js
 - 📫 How to reach me email me on angelsichone24@gmail.com ,
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ..am looking forward to anyone 
 
 <!---
 Angelsichone/Angelsichone is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
